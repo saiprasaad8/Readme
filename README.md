@@ -28,4 +28,4 @@ Find all my social links [on my profile](https://github.com/saiprasaad8) – fee
 
 ---
 
-> “Creativity is intelligence having fun.” – Albert Einstein
+> “Creativity is intelligence having fun.”
